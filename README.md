@@ -3,7 +3,7 @@
 ---
 
 # 💫 About Me:
-🌱 UTSA Undergraduate Student | 2026<br>
+🌱 UTSA Graduate Student | 2027<br>
 
 ## 📫 How to reach me:
 **Jordan.garcia6@my.utsa.edu**
